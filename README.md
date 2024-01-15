@@ -1,6 +1,6 @@
 # Hello I'm Verito!
 
-Hi! 😁 I'm Veronica, eighth semester student of Systems Engineering, mainly this was not the career I wanted to study, but I have learned many things that have made the systems become part of my life; here I leave you some things I've been able to learn from them: 
+Hi! 😁 I'm Veronica,student of Systems Engineering, mainly this was not the career I wanted to study, but I have learned many things that have made the systems become part of my life; here I leave you some things I've been able to learn from them: 
 
  - 🤓 I am very good when I put my mind to it.
  - 📚 I like to learn by myself.
