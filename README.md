@@ -30,7 +30,7 @@ Systems Engineer 👩‍💻 with a passion for QA testing, dedicated to ensurin
 <details>
   <summary> 🤓 Experience </summary>
   
-  * Testing and Automation | MindHub - July 2024 - Present
+  * Testing and Automation | MindHub - July 2024 - Present.
   * Technology Strategy and Consulting | Accenture - January 2023 - July 2023
   * Educational Support Monitor | Ases | Universidad del Valle - September 2023 - December 2023
 </details>
