@@ -24,7 +24,7 @@ Systems Engineer 👩‍💻 with a passion for QA testing, dedicated to ensurin
   * 👩‍💻 I'm studying testing and automation.
   * 🧐  I'm still on the lookout for my dream job.
   * ⬆ If you know of a position where my profile fits perfectly, message me [Email](veronica.botero@correounivalle.edu.co)
-  * In my free time, I focus on entrepreneurship—want to know what I'm working on?" [my business ✨🌺](https://www.instagram.com/p/C--ueoVOLvF/)
+  * In my free time, I focus on entrepreneurship—want to know what I'm working on? [my business ✨🌺](https://www.instagram.com/p/C--ueoVOLvF/)
 </details>
 
 <details>
